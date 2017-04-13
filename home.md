@@ -1,12 +1,13 @@
 # Premium Texas Wine Grapes
 
-JoBreguen Vineyards is a family-run vineyard near Brownfield, Texas. David and Karla Dill are part of a four-generation legacy of farming in Terry County, growing primarily cotton and peanuts. However, since founding JoBreguen Vineyards in 2008, the Dills have grown premium wine grapes for West Texas wineries.
+JoBreguen Vineyards is a family-run vineyard near Brownfield, Texas. David and Karla Dill are part of a four-generation legacy of farming in Terry County. Until 2008, the Dills grew primarily cotton and peanuts. In fact, if you wear T-shirts or eat a Snickers bar every now and then, there's a chance the Dill family has already fed and clothed you. But even though eating a Snickers really satisfies, David and Karla still wanted something more. They didn't want to just hand off their harvest to someone else. They wanted to be involved in every part of creating a product. The West Texas wine industry allows them to see the fruits of their labor from seed to shelf. So, since founding JoBreguen Vineyards in 2008, the Dills have grown premium wine grapes for West Texas wineries.
+
+- 45+ Acres
+- 325 Rows of Grapes
+- 45k Vines Planted
+- 8,000 Feet of Drip Tape
 
 ### Every wine pairs well with laughter.  
 At JoBreguen Vineyards, we help make both.  
-
-##### A good laugh starts in your belly. A good wine ends up there.  
-
-**JoBreguen Vineyards**, owned and operated by D & K Farms in cooperation with 2 Dollar Dill. Proud to be a West Texas vineyard contributing to West Texas wines.
 
 © 2017 JoBreguen Vineyards
