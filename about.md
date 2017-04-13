@@ -8,7 +8,7 @@
 ---
 ### Every wine pairs well with laughter.
 To help fill the world with both, the Dill family established JoBreguen Vineyards in 2008 out in the High Plains of West Texas. David is a third generation cotton and peanut farmer in Terry County, one of the top 10 cotton-producing and top 50 peanut-producing counties in the United States. JoBreguen Vineyards is one of the oldest vineyards in Terry County. It began with just 5 acres of Cabernet Sauvignon.  
-David is a third generation West Texas farmer, growing primarily cotton and peanuts before venturing into viticulture. He and his wife, Karla, have three sons: Joshua, Brenton, and Teaguen. JoBreguen Vineyards is named after their favorite one.
+David and his wife, Karla, have three sons: Joshua, Brenton, and Teaguen. JoBreguen Vineyards is named after their favorite one.
 
 ![vineyard post]
 
